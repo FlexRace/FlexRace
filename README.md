@@ -3,15 +3,15 @@
 
 **INFORMATION**
 
-🌐 Website: steven-melamed.de
-🎨 6+ years Graphic Designer 
-👨🏽‍💼 Training at Telekom 2022/09
+- 🌐 Website: steven-melamed.de
+- 🎨 6+ years Graphic Designer 
+- 👨🏽‍💼 Training at Telekom 2022/09
 
 **CONTACT**
 
-📨 | kontakt@steven-melamed.de
-Discord | FlexRace#1562
-Instagram | realflexi
-Twitter | @RealFlexi
+- 📨 | kontakt@steven-melamed.de
+- Discord | FlexRace#1562
+- Instagram | realflexi
+- Twitter | @RealFlexi
 
 
