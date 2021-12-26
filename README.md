@@ -3,9 +3,9 @@
 
 **INFORMATION**
 
-🌐 | Website: steven-melamed.de
-🎨 | 6+ years Graphic Designer 
-👨🏽‍💼 | Training at Telekom 2022/09
+🌐 Website: steven-melamed.de
+🎨 6+ years Graphic Designer 
+👨🏽‍💼 Training at Telekom 2022/09
 
 **CONTACT**
 
