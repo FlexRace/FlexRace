@@ -1,14 +1,16 @@
 ### Hi there 👋, my name is Steven!
-###### I am an 19-year-old aspiring software developer from North Rhine-Westphalia, Germany
+###### I am an 22-year-old aspiring software developer from North Rhine-Westphalia, Germany
 
 **INFORMATION**
 
 - 🌐 Website: steven-melamed.de
-- 🎨 6+ years Graphic Designer
+- 🎨 Graphic Designer
+- 🖥️ Web-Developer
+- 📈 Operations Analyst
 
 **CONTACT**
 
-- 📨 | kontakt@steven-melamed.de
+- 📨 | steven.melamed08@gmail.com
 - Discord | FlexRace#1562
 - Instagram | realflexi
 - Twitter | @RealFlexi
